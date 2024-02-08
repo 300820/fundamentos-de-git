@@ -3,4 +3,4 @@ Kinder S.Bolivar
 Primaria Viva Mexico
 Sec.Alberto Einstein
 Preparatoria UAS CasaBlanca 
-
+Universidad 
